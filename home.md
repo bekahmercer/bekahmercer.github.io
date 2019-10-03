@@ -16,7 +16,7 @@ jobs they love in a few months. :)
 You can find me at:
 bekahmercer.github.io
 twitter.com/okcbek
-linkedin.com/bekahmercer ??
+linkedin.com/in/bekahmercer/
 
 
 # My Blog
